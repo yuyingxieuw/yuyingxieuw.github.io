@@ -16,3 +16,8 @@ PhD Candidate; Teaching Assistant
 - GEOG 360: GIS and Mapping (Spring 2021; Autumn 2022)
 - GEOG 258: Digital Geographies (Winter 2021)
 - GEOG 245: Geodemographics: Population, Diversity, And Place (Autumn 2020)
+# Personal Website
+https://geography.washington.edu/people/yuying-xie
+# Related News
+### Yuying Xie Receives the Frank Jenkins Jr. Fellowship in Labor Studies Nov 18, 2022
+### What Is Emotional Labor and Why Is It Important? Mar 4, 2022
